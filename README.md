@@ -4,9 +4,9 @@
 
 ### Training
 
-https://www.savoir-ecrire.fr
-https://licares.fr/
-https://lantredemyfanwi.wordpress.com/
+* https://www.savoir-ecrire.fr
+* https://licares.fr/
+* https://lantredemyfanwi.wordpress.com/
 
 ### Tool
 
