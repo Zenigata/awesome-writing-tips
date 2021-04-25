@@ -9,10 +9,10 @@ https://licares.fr/
 
 ### Tool
 
-https://www.writecontrol.fr/
-https://www.plumedargent.fr/
-https://www.scribay.com/
-https://www.wattpad.com/
+* https://www.writecontrol.fr/
+* https://www.plumedargent.fr/
+* https://www.scribay.com/
+* https://www.wattpad.com/
 
 ### Covers
 
@@ -34,9 +34,9 @@ https://www.youtube.com/watch?v=laABMci7bIE
 
 ### Podcast
 
-https://licares.fr/podcast/
-https://podcasts.apple.com/fr/podcast/procrastination-pour-procrastiner-utile-sur-son-%C3%A9criture/id1154959243
-https://www.youtube.com/channel/UC9nKyMuDqJI4CBEaloTALaw
+* https://licares.fr/podcast/
+* https://podcasts.apple.com/fr/podcast/procrastination-pour-procrastiner-utile-sur-son-%C3%A9criture/id1154959243
+* https://www.youtube.com/channel/UC9nKyMuDqJI4CBEaloTALaw
 
 ## Livres
 
