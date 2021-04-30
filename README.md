@@ -47,6 +47,11 @@ https://www.youtube.com/watch?v=laABMci7bIE
 * https://www.youtube.com/channel/UCHATTzjjHcfehc-piqOGWxA/featured
 
 ## Livres
+* https://www.bragelonne.fr/catalogue/9791028102807-comment-ecrire-de-la-fantasy-et-de-la-science-fiction/
+* https://www.bragelonne.fr/catalogue/9791028104672-personnages-et-point-de-vue/
+* https://livre.fnac.com/a1757657/Hubert-Haddad-Le-nouveau-magasin-d-ecriture
+* https://livre.fnac.com/a1219659/Stephen-King-Ecriture-Memoires-d-un-metier
+* https://www.auxforgesdevulcain.fr/collections/hors-collection/oser-ecrire-son-premier-roman-en-dix-minutes-par-jour/
 
 ## Techniques
 
