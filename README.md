@@ -52,6 +52,7 @@ https://www.youtube.com/watch?v=laABMci7bIE
 * https://livre.fnac.com/a1757657/Hubert-Haddad-Le-nouveau-magasin-d-ecriture
 * https://livre.fnac.com/a1219659/Stephen-King-Ecriture-Memoires-d-un-metier
 * https://www.auxforgesdevulcain.fr/collections/hors-collection/oser-ecrire-son-premier-roman-en-dix-minutes-par-jour/
+* https://argyll.fr/produit/comment-ecrire-de-la-fiction/
 
 ## Techniques
 
