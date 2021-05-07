@@ -57,7 +57,8 @@ https://www.youtube.com/watch?v=laABMci7bIE
 ## Techniques
 
 * [Trigger Warnings](https://twitter.com/cerynie_/status/1278384849473208321)
-* [Comment pitcher votre histoire ?](https://twitter.com/story_nerd/status/1387416300599881728?s=20)
+* [Comment pitcher votre histoire ?](https://twitter.com/story_nerd/status/1387416300599881728)
+* [Tips pour l’envoi d’un manuscrit aux éditeurs](https://twitter.com/Bleue_nn/status/1319677396925243398)
 
 ## Vocabulaire
 
