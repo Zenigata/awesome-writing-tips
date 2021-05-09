@@ -59,6 +59,7 @@ https://www.youtube.com/watch?v=laABMci7bIE
 * [Trigger Warnings](https://twitter.com/cerynie_/status/1278384849473208321)
 * [Comment pitcher votre histoire ?](https://twitter.com/story_nerd/status/1387416300599881728)
 * [Tips pour l’envoi d’un manuscrit aux éditeurs](https://twitter.com/Bleue_nn/status/1319677396925243398)
+* [Verbes de dialogue](http://ecrire-un-roman.com/verbes-de-dialogue/) ou [verbes de parole](https://pasmafaute.com/verbes-de-parole/)
 
 ## Vocabulaire
 
