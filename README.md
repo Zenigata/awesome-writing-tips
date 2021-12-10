@@ -46,7 +46,8 @@ https://www.youtube.com/watch?v=laABMci7bIE
 * https://www.margotdessenne.fr/podcast-les-mots-ratures/
 * https://www.youtube.com/watch?v=BIJctCAhUlc&list=PLTjji_ujuRgHi6S8SWOb8j6nf_O089-zQ&index=6
 * https://www.youtube.com/channel/UCHATTzjjHcfehc-piqOGWxA/featured
-
+* https://podcast.ausha.co/alineas
+* 
 ## Livres
 * https://www.bragelonne.fr/catalogue/9791028102807-comment-ecrire-de-la-fantasy-et-de-la-science-fiction/
 * https://www.bragelonne.fr/catalogue/9791028104672-personnages-et-point-de-vue/
