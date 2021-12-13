@@ -48,6 +48,9 @@ https://www.youtube.com/watch?v=laABMci7bIE
 * https://www.youtube.com/channel/UCHATTzjjHcfehc-piqOGWxA/featured
 * https://podcast.ausha.co/alineas
 * https://lechatdelecrivain.buzzsprout.com/
+* https://podcast.ausha.co/romanciere-pro
+* https://www.margotdessenne.fr/podcast/
+* https://www.youtube.com/channel/UCYjY8Dkt72SDG8UYztwVcMw
 
 ## Livres
 * https://www.bragelonne.fr/catalogue/9791028102807-comment-ecrire-de-la-fantasy-et-de-la-science-fiction/
