@@ -36,7 +36,8 @@ https://textes-a-la-pelle.fr/
 
 ### YouTube
 
-https://www.youtube.com/watch?v=laABMci7bIE
+* https://www.youtube.com/watch?v=laABMci7bIE
+* [La Page Blanche](https://www.youtube.com/playlist?list=PLctxNIdqUnwG-ou8S3FqQmJ_RyGVG8npG)
 
 ### Podcast
 
@@ -70,7 +71,8 @@ https://www.youtube.com/watch?v=laABMci7bIE
 
 ## Vocabulaire
 
-https://www.roxanedambre.com/quelle-doit-etre-la-longueur-dun-roman/
+* https://www.roxanedambre.com/quelle-doit-etre-la-longueur-dun-roman/
+* https://inspirassion.com/fr/
 
 ## Relecture
 
