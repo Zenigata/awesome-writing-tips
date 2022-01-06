@@ -73,6 +73,9 @@ https://textes-a-la-pelle.fr/
 
 * https://www.roxanedambre.com/quelle-doit-etre-la-longueur-dun-roman/
 * https://inspirassion.com/fr/
+* [Dictionnaire Électronique des Synonymes](https://crisco2.unicaen.fr/des/)
+* http://www.synonymo.fr/
+* https://www.cnrtl.fr/synonymie/
 
 ## Relecture
 
