@@ -15,6 +15,7 @@
 * https://www.scribay.com/
 * https://www.wattpad.com/
 * https://orbis.stanford.edu/
+* [Un générateur de noms de ville](https://souk21.github.io/villegen/)
 
 ### Covers
 
