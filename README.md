@@ -69,6 +69,7 @@ https://textes-a-la-pelle.fr/
 * [Tips pour l’envoi d’un manuscrit aux éditeurs](https://twitter.com/Bleue_nn/status/1319677396925243398)
 * [Verbes de dialogue](http://ecrire-un-roman.com/verbes-de-dialogue/) ou [verbes de parole](https://pasmafaute.com/verbes-de-parole/)
 * [Verbes d'incise](https://jeremy-haim.systeme.io/blog/les-verbes-dincise)
+* [La bêta-lecture](https://bleuennguillou.fr/la-beta-lecture-2/)
 
 ## Vocabulaire
 
