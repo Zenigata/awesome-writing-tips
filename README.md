@@ -53,6 +53,7 @@ https://textes-a-la-pelle.fr/
 * https://podcast.ausha.co/romanciere-pro
 * https://www.margotdessenne.fr/podcast/
 * https://www.youtube.com/channel/UCYjY8Dkt72SDG8UYztwVcMw
+* https://podcast.ausha.co/6001-mots
 
 ## Livres
 * https://www.bragelonne.fr/catalogue/9791028102807-comment-ecrire-de-la-fantasy-et-de-la-science-fiction/
